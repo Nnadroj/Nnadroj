@@ -1,2 +1,2 @@
-product guy learning web dev 💻 
+full-stack developper @MFL (https://playmfl.com/) 💻⚽⛓️
 
