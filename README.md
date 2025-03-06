@@ -1,4 +1,4 @@
-Full Stack JS developper @MFL (https://playmfl.com/) 💻⚽⛓️
+Full Stack JS developper 
 
 Personal projects: 
 https://www.jordannlegal.com/ | 
